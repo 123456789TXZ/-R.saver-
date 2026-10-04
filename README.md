@@ -11,5 +11,6 @@
 
 
 请作者喝一杯奶茶吧！！！
-![Uploading image.png…]()
+
+<img width="1031" height="979" alt="image" src="https://github.com/user-attachments/assets/350afea6-1f0c-42bb-a971-216e51b229c5" />
 
