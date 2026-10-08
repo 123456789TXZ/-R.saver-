@@ -2,6 +2,11 @@
 全网首发！！！俄罗斯恢复软件R.saver汉化版
 
 
+蓝奏云下载链接：
+https://wwant.lanzouu.com/iXHj14b91f2d
+密码:8bur
+
+
 
 
 
